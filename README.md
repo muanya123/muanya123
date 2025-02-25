@@ -1,4 +1,4 @@
-Hi, I’m Lucy, and I’m passionate about turning data into actionable insights
+Hi, I’m Chimuanya, and I’m passionate about turning data into actionable insights
 
 🌟 My Focus Areas:
 
